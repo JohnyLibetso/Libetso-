@@ -1,1 +1,1 @@
-# Libetso-
+# Libetso-BSC Information Systems (Degree)
